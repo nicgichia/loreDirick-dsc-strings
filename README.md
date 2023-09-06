@@ -1,0 +1,1 @@
+# loreDirick-dsc-strings
